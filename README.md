@@ -1,1 +1,1 @@
-<img src="https://cdn.discordapp.com/attachments/830129144476991508/941798790577418321/menace-santana.gif"
+<h1 align="center"><a target="_blank" rel="noopener noreferrer" href="https://cdn.discordapp.com/attachments/878360404970070096/905088035035676733/tumblr_8b7460488dda27f333fdc338f2cd96fb_12938630_540.gif"><img src="
